@@ -12,7 +12,7 @@
 
 - 📫 How to reach me **laofroy@gmail.com**
 
-- ⚡ Fun fact **I'm cute**
+- ⚡ Fun fact **I'm interested in Blockchain**
 
 <h3 align="left">Connect with me:</h3>
 <p align="left">
